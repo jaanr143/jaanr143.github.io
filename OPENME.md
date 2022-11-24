@@ -33,3 +33,11 @@ Taylor Swift is the debut studio album by American singer-songwriter Taylor Swif
 2. The Way I Loved You - the lyrics is about being in love with a bad guy when you're going out with a nice guy. It is very popular and relatable to wattpad sotries that I read and the song is fun to sing 
 3. Love story -  Swift wrote the song using William Shakespeare's tragedy Romeo and Juliet as a reference point. The lyrics narrate a troubled romance between two characters that ends with a marriage proposal, contrary to Shakespeare's tragic conclusion. 
 
+##  SPEAK NOW(2010)
+<img src= https://user-images.githubusercontent.com/118234261/203672498-bcbf5527-97ab-42a4-ad9d-0abc9bb09aca.png width =200>
+
+1. Enchanted - the song is about infatuation with someone after meeting them for the first time, and worrying about whether the initial feeling will be reciprocated. 
+2. Back to December - The lyrics are about a remorseful plea for forgiveness from a former lover. I also don't relater to this much but I love the harmony, melody, and lyrics. 
+3. Speak Now -  the track is about a protagonist interrupting a wedding in an attempt to win her ex-lover back. I don't relate to it much but I love the bridge on the chorus. 
+
+
