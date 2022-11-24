@@ -29,6 +29,7 @@ Taylor Swift is the debut studio album by American singer-songwriter Taylor Swif
 ##  FEARLESS (2008)
 <img src= https://user-images.githubusercontent.com/118234261/203671811-4ee71d58-3c1c-4be0-b83c-22dde8d462df.png width =200>
 
-1. You Belong With Me- 
-2. The Way I Loved You
-3. Love story
+1. You Belong With Me-  it is inspired by a phone call between a male friend of hers and his girlfriend that she overheard, the lyrics is about an insecure protagonist's unrequited love for an out-of-reach interest. Once again relatable and it was my favorite song when I was in elementary. 
+2. The Way I Loved You - the lyrics is about being in love with a bad guy when you're going out with a nice guy. It is very popular and relatable to wattpad sotries that I read and the song is fun to sing 
+3. Love story -  Swift wrote the song using William Shakespeare's tragedy Romeo and Juliet as a reference point. The lyrics narrate a troubled romance between two characters that ends with a marriage proposal, contrary to Shakespeare's tragic conclusion. 
+
