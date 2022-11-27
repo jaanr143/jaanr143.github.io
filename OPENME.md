@@ -74,6 +74,24 @@ Taylor Swift is the debut studio album by American singer-songwriter Taylor Swif
 ##  Folklore(2020)
 <img src= https://user-images.githubusercontent.com/118234261/204122653-9b4e7352-b168-4d57-8893-17e6a88e4d6d.png width =200>
 
-1. Cardigan -  it is about a comforting romance lost in memories, from the perspective of a female narrator named Betty, one of the several fictitious characters narrated in Folklore
-2. Exile
-3. The 1
+1. Cardigan -  it is about a comforting romance lost in memories, from the perspective of a female narrator named Betty, one of the several fictitious characters narrated in Folklore. I love the pain in the lyrics. 
+2. Exile - it is about two estranged lovers having an unspoken dialogue. This song is also very painful and I love it like that.
+3. The 1 - the song describes the narrator's newborn positive approach to life and past romance, in a sad but humorous tone, using numerous one-liners. I love the harmony especially in the chorus. 
+
+##  Evermore(2020)
+<img src= https://user-images.githubusercontent.com/118234261/204123735-1b9d2997-ba28-4d76-bcca-32b9142691f4.png width =200>
+
+1. Champagne problems - it is written from the perspective of a troubled girlfriend who turns down her lover's earnest marriage proposal due to her own mental health struggles. The song depicts the narrator taking responsibility for the breakup and mourning the faded relationship. I like the song but I don't relate. 
+2. Evermore - Taylor tackles topics of mental health when she felt like the whole world was against her. However, she finds hope that the pain she endured during these times wouldn’t last forever. I'm not that familiar with evermore but I've heard it before.
+3. Closure - closure is about the anthology of tales about love, marriage, infidelity, and grief, exploring the complexities of human emotion. Not familiar with the song much but I love the title. 
+
+##  Midnights(2022)
+
+1. Labyrinth - it is about falling in love again after a heartbreak. She overcomes the 3 stages of falling in love, Realization, denial, and acceptance. My top 1 because I relate to this one very much. 
+2. Mastermind - the lyrics is about a protagonist confessing to her lover that she in the past had carefully initiated a plan to make him love her. I relte to this because in the past, I used to mastermind to make my crush sit close to me and etc. Although now I prefer things to go naturally and not my plan. I'm starting to let loose and be who I am instead of pretending to be someone I'm not. 
+3. Midnight rain -  it is about leaving behind the comfort of a healthy relationship to avoid settling. I like how the voice changed at the first part and the chorus, when I first heard it it made me question whether or not I'm still listening to Taylor Swift. 
+
+Those are all my ratings, reasons, and comments about Taylor Swift's songs and Albums. Each one of her song is the best we just have different favorites and opinions. Again the comments and opinions I stated are not facts and just my opinion so don't take it seriously and literally. We all have different opinions and we should learn to respect each other's comments. As long as we all love and support Taylor that's the most important thing. I hope you enjoyed reading this very long site and it inspires you to make your own and listen to Taylor Swift! 
+
+# MIDNIGHTS OUT NOW ON SPOTIFY!
+https://open.spotify.com/album/151w1FgRZfnKZA9FEcg9Z3?si=1u8TXgVDQqWjiudxiwMfYg
