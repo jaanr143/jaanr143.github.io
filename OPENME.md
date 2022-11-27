@@ -58,3 +58,12 @@ Taylor Swift is the debut studio album by American singer-songwriter Taylor Swif
 3. Shake it off -  it is about Swift's indifference to her detractors and their negative view of her image. I love the rap-like part near the chorus, it's very popular on tiktok and the music is catchy. 
 
 ##  Reputation(2017)
+<img src= https://user-images.githubusercontent.com/118234261/204116092-6600f283-f6f4-4805-adc8-797d45e4f846.png width =200>
+
+1. Don't Blame Me - the lyirics is about  Swift's unapologetic attitude reflecting her reputation as a songwriter who mostly wrote about love and past relationships. To me, the lyrics mean doing anything even if it's crazy for the person you love. I love this song because I believe that when you truly love someone, you would do even crazy things fopr them. 
+2. Getaway Car - the song describes Swift's efforts to exit a relationship using romance with someone else, knowing the new relationship will also end briefly because its purpose was only to "get away" from the first one. The music of this song is very enchanting along with the harmony of the lyrics. 
+3. Gorgeous -  the lyrics describes Swift's feelings for a newfound love interest. I like this because I relate to it very much. ;>
+
+##  Lover(2019)
+<img src= https://user-images.githubusercontent.com/118234261/204116238-c541ba11-2e62-48ed-9aec-4d419931c38d.png width =200>
+
