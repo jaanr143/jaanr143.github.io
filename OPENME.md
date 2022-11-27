@@ -67,3 +67,13 @@ Taylor Swift is the debut studio album by American singer-songwriter Taylor Swif
 ##  Lover(2019)
 <img src= https://user-images.githubusercontent.com/118234261/204116238-c541ba11-2e62-48ed-9aec-4d419931c38d.png width =200>
 
+1. Lover -  it is about an intimate and committed relationship. The song makes me feel so giddy everytime I hear it. I imagine dancing with someone at prom to this song. 
+2. Daylight - it is about leaving a time of darkness and embracing forgiveness for yourself and others. It’s about learning to trust and love in a safe relationship and both people finding healing alongside each other. I love this song because it made me realize that we can be healed and forgiven. It shows us that even after a “20-year dark night” or more, we can still step into the daylight and learn to explore the beauty and depth of love. 
+3. London Boy -  it is about an infatuation with a love interest from London, inspired by Swift's experiences in the city. I have a love interest but not in London so I kind of relate HAHAHAHA.
+
+##  Folklore(2020)
+<img src= https://user-images.githubusercontent.com/118234261/204122653-9b4e7352-b168-4d57-8893-17e6a88e4d6d.png width =200>
+
+1. Cardigan -  it is about a comforting romance lost in memories, from the perspective of a female narrator named Betty, one of the several fictitious characters narrated in Folklore
+2. Exile
+3. The 1
