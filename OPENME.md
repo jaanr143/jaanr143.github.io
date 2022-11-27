@@ -95,3 +95,6 @@ Those are all my ratings, reasons, and comments about Taylor Swift's songs and A
 
 # MIDNIGHTS OUT NOW ON SPOTIFY!
 https://open.spotify.com/album/151w1FgRZfnKZA9FEcg9Z3?si=1u8TXgVDQqWjiudxiwMfYg
+
+SOURCES: 
+Wikipedia and Google
